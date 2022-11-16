@@ -1,4 +1,4 @@
-1.jpg
+![2222](https://user-images.githubusercontent.com/118123604/202127214-082db439-b66d-4abd-ba05-9ec3364fedc7.jpg)
 # BAKHTIYAR BOBOKULOV 
 www.linkedin.com/in/bakhtiyarbobokulov│+7 920 099 40 47 │ b.bobokulov@outlook.com
 
